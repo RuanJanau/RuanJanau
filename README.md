@@ -1,9 +1,10 @@
-## Opaa, caiu sem querer aqui? Me chamo Ruan Janaú e seja bem vindo(a)❤
+## Seja bem vindo ao meu perfil ❤
 
-👓Sou focado no que eu quero...
-🖥Paixão é mexer com Computador...
-😎Tenho 22 Anos.
-✌Tenho facilidade em aprender coisas novas...
+👓Sou focado no que eu quero. 
+ 🖥 Passei a amar programação .
+ 😎Tenho 23 Anos.
+ ✌Tenho facilidade em aprender, e entrei no mundo da programação a pouco tempo,
+ e pretendo me especializar nessa área.
 👽E-mail para contato: rhuanjanau531@gmail.com
 
 <div>
